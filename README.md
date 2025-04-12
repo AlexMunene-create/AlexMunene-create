@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Designing and App Development
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me email;munenealex083@gmail.com,Instagram;munenealex083,coll man,
+- 📫 How to reach me email;munenealex083@gmail.com;munenea925@gmail.com,Instagram;munenealex083,coll man,
 - 😄 Pronouns: He
 - ⚡ Fun fact: I am full of ideas to give out
 - Fun to collaborate

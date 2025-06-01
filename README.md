@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Alex Munene
 - 👀 I’m interested in Web Designing and App Development
-- 🌱 I’m currently learning Kotlin
+- 🌱 I’m currently learning React node.js
+- 
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me email;munenealex083@gmail.com;munenea925@gmail.com,Instagram;munenealex083,coll man,
 - 😄 Pronouns: He
